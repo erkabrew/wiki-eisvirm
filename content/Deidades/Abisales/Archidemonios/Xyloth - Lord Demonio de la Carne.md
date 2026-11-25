@@ -1,0 +1,2 @@
+#deidad #deidad_superior #abisal
+Lord demonio de la 129ª capa del abismo, dominio de caos y crueldad, la carne. Él es neutral caótico pues ama la vida que crea [[Maebeh - La Vida y Prosperidad]] de una forma terriblemente retorcida, donde quiere experimentar constantemente y ver cada uno de los cuerpos hasta saber cuál es su límite. Quiere ver cuándo lloran por el dolor, o por la alegría del placer. Reconocido como el Arconte de la Carne. Su dominio: La Carnicería Cantarina.

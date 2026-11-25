@@ -1,0 +1,1 @@
+![[MAPA_SKANDIA.webp]]

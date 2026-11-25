@@ -1,0 +1,1 @@
+El estado mas común de la magia física, el éter es una magia condensada en un estado liquido de forma estable con una consistencia variable dependiendo de la pureza del material siendo los yacimientos mas impuros teniendo una textura similar a la brea o alquitrán y en los casos de mayor pureza siendo líquidos como el agua.

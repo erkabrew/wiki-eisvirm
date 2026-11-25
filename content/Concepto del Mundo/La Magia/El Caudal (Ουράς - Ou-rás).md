@@ -1,0 +1,1 @@
+El Océano de Magia que está en constante fluctuación por todo el mundo. Es una magia que si bien puede ser drenada y canalizada, usualmente es intangible. Ésta abarca los tres otros tipos de magia, el [[Mana (Μάννα - Má-nna)]], [[Trana (Τράνα - Trá-nna)]] y el [[Prana (Πράνα - Prá-na)]].
