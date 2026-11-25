@@ -1,0 +1,5 @@
+Los Shinra son guerreros de hace tiempos inmemorables los cuales cada miembro al nacer tienen credo al cual seguir; "Yo vivo por la espada y el acero". 
+
+Al nacer cada miembro es marcado con acero al rojo vivo en alguna parte del cuerpo con la marca del clan la cual es una espada haciendo que entre ellos se puedan reconocer. Son entrenados para dedicarse al combate y a la caza, algunos de estos tambien se dedican a la forja siendo estos ultimos una de las labores mejor vistas ya que gracias a los herreros existen las armas para que un guerrero se pueda llamar como uno.
+
+El trato entre hombres y mujeres es igualitario, el clan ha tenido distintos Patriarcas y Matriarcas al mando, lo que importa es como se maneja una persona en combate. El clan posee un codigo de honor que seguir, cualquiera que lo corrompa sera considerado un "Deshonroso" y depende de la gravedad sera exiliado o con pena de muerte.
