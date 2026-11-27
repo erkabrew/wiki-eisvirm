@@ -2,6 +2,7 @@
 title: Archivo de Eisvirm
 description: Wiki oficial de Erkabrew dedicada al mundo de Eisvirm, su lore, deidades, geografía, organizaciones e historia.
 ---
+![Banner Wiki Eisvirm](/Assets/Banners/WIKI-EISVIRM.webp)
 
 > *"Donde las sombras guardan memoria y cada registro desvela un hilo del mundo."*
 
